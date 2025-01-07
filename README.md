@@ -2,7 +2,7 @@
 
 ## 👀 I’m an expert full stack developer in Web/Mobile applications development.
 
-## I'm a Senior Full Stack Web Developer and a Learner!
+## I'm a Senior Full Stack Web Developer and the Fastest Learner!
 
 - I ❤️ to learn, develop and experiment with programs and awesome things on internet.
 - I ❤️ to connect with more people.
